@@ -1,4 +1,4 @@
-# CSEL-302
+# CSEL-302 ⋆｡‧˚ʚ🍓ɞ˚‧｡⋆
 Activities and Projects Compilation
 
 
