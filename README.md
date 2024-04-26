@@ -6,7 +6,7 @@ Activities and Projects Compilation
 
 These are my compilation of actvities and projects below. 
 
-#Activities
+# Activities
 
 1. Exercise 4
 2. Exercise 5
