@@ -4,7 +4,6 @@ Activities and Projects Compilation
 # My Profile ໒꒰ྀིᵔ ᵕ ᵔ ꒱ྀི১
 
 Name: Angeles, Khatrina B
-Subject: CSEL 302
 
 # Introduction
 
